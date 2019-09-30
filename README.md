@@ -1,2 +1,2 @@
 # scoobydoos-dad
-# I am scoobydoos momm
+# I am scoobydoos mom
